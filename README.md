@@ -8,6 +8,4 @@
 
 - 🔭 Atualmente, trabalho com astronomia e programação
 - 🌱 Curso Física na Universidade Federal do Rio Grande do Norte
-- 💬 Ask me about ...
-- ⚡ Fun fact: ...
 
